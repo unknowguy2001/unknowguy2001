@@ -11,7 +11,6 @@
 
 - 📫 How to reach me **unknowguy2001@gmail.com**
 
-- ⚡ Fun fact **I am passionate about Programing.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
