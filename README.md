@@ -1,1 +1,1 @@
-I am self-taught programer
+I will do my personal project soon.
