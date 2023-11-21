@@ -1,1 +1,1 @@
-I will do my personal project soon.
+I'm just a multipotentialite person who wants to be a good full-stack developer.
